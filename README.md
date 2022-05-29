@@ -8,7 +8,7 @@ You can send a email on stefanjokictesla484@gmail.com or DM me via discord YOKA#
 Yoka1998/Yoka1998 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-I have PDSD ADHD and Tourettes 1 level.
+I have PTSD, ADHD, OCD and Tourettes 1 level.
 
 
 
